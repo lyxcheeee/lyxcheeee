@@ -35,5 +35,5 @@ New Era University
 | **Tools** | Lucidchart, Jaspersoft Studio, Eclipse, HTML |
 
 ## You May Reach Me At
-- 💼 **LinkedIn:** [LinkedIn profile link](https://www.linkedin.com/in/karen-claire-gardon-10b791364/)
+- 💼 **LinkedIn:** [Karen Claire Gardon](https://www.linkedin.com/in/karen-claire-gardon-10b791364/)
 - 📧 **Email:** [kclairg@gmail.com](mailto:kclairg@gmail.com)
